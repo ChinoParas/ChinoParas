@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ChinoParas
 - 👀 I’m interested in Web and Moblie Application
-- 🌱 I’m currently learning in Tarlac State University
+- 🌱 I’m currently Studying in Tarlac State University
 - 💞️ I’m looking to collaborate on some IT Professionals
 - 📫 Dm me here or @chinoparas5@gmail.com
 
